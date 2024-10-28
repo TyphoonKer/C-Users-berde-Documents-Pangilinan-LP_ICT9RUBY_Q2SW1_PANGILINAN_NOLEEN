@@ -1,1 +1,3 @@
-# C-Users-berde-Documents-Pangilinan-LP_ICT9RUBY_Q2SW1_PANGILINAN_NOLEEN
+References:
+Harbor info & photo: https://valorant.fandom.com/wiki/Harbor
+Ei photo: https://genshin-impact.fandom.com/wiki/Raiden_Shogun
